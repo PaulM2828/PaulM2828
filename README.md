@@ -6,7 +6,7 @@ Results-driven professional with a diverse background in HR management, technica
 
 ## Professional Experience
 
-### Mihaela Bizga LTD - Data Scientist (06/2022 - Present)
+### MB  LTD - Data Scientist (06/2022 - Present)
 - Crafted accurate and impactful correspondence, reports, and presentations.
 - Streamlined office operations, emphasizing efficiency.
 - Implemented strategic changes, resulting in improved overall efficiency.
